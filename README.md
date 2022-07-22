@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @en-ife
+- 👋 Hi, I’m En
 - 👀 I’m interested in ...emerging technologies, technology development / applications (especialyl to humanitarian causes), AR/MR/VR, anything having to do with business strategy & entrepreneurship and otherwise.... krav maga, kickboxing, MMA, BJJ, and ballet.
 - 🌱 I’m currently learning ... more about C, lots about martial arts, & lots about business strategy.
 - 📫 How to reach me ... 
